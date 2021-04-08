@@ -1,17 +1,27 @@
-# datnensamson
-Dự án Đất Nền Sầm Sơn - Văn Phú Invest. Hotline CĐT: 0948.300.301
-<h1>Quy hoạch hạ tầng đồng bộ</h1>
-<p><a href="https://vanphugroup.com/dat-nen-sam-son/"><strong>Dự án Đất Nền Sầm Sơn</strong></a><strong> </strong>được quy hoạch là khu ở cao cấp, dịch vụ, nghỉ mát bao gồm các biệt thự, nhà vườn, các khu nhà ở liền kề có thể được xây dựng với mục đích tạo thành các khách sạn tư nhận phục vụ khách nghỉ mát tại biển Sầm Sơn.</p>
-<ul><li>Trung tâm thương mại, dịch vụ: 23.853 m2.</li><li>Biệt thự nghỉ dưỡng: 55.538 m2.</li><li>Biệt thự đơn lập: 17.444 m2.</li><li>Biệt thự song lập: 7.943 m2.</li><li>Nhà liền kề: 13.296 m2.</li><li>Khách sạn: 41.626 m2.</li><li>Quảng trường, cây xanh, mặt nước: 47.022 m2.</li><li>Đất giao thông, bãi đỗ xe: 95.699 m2.</li><li>Đất hạ tầng kỹ thuật: 47.022 m2.</li></ul>
-<h2>Vị trí đánh thức tiềm năng phát triển</h2>
+CEOHomes Hana Garden
+<h1>GIỚI THIỆU DỰ ÁN CEOHOMES HANA GARDEN</h1>
+<p><a href="https://www.tranngocthuan.com/du-an/ceohomes-hana-garden"><strong>CEOHomes Hana Garden</strong></a><strong> </strong>là tổ hợp khu đô thị gồm đa dạng sản phẩm: Biệt thự, Liền kề, Shophouse thương mại và Căn hộ chung cư được quy hoạch đồng bộ với tiện ích tiêu chuẩn hạng sang đáp ứng mọi nhu cầu về cuộc sống tiện nghi của cộng đồng cư dân tri thức. Sở hữu nhiều ưu điểm vượt trội, các sản phẩm tại khu đô thị CEOHomes Hana Garden Mê Linh nhanh chóng trở thành dự án để ở và đầu tư hấp dẫn nhất tại trung tâm khu vực Mê Linh.</p>
+<p>Mang vẻ đẹp lãng mạn của những khu vườn xanh tươi đẳng cấp, Hana Garden City Mê Linh mở ra khung cảnh của thành phố hiện đại giữa không gian an yên của cỏ cây & hoa lá, tươi mới tràn năng lượng.</p>
+<p>Hướng đến phát triển một khu đô thị xanh – thông minh, các sản phẩm Liền kề & Biệt thự tại khu đô thị CEO Mê Linh – Hana Garden City ứng dụng hệ thống công nghệ hiện đại trong từng không gian, tiên phong kiến tạo môi trường sống năng động & nhân văn cho cư dân tương lai.</p>
+<p><a href="https://www.tranngocthuan.com/du-an/ceohomes-hana-garden"><strong>CEOHomes Hanna Mê Linh</strong></a><strong> </strong> là khu đô thị đẳng cấp và sang trọng được đầu tư xây dựng tại khu vực giáp ranh 3 xã Đại Thịnh – Mê Linh – Văn Khê, huyện Mê Linh, Tp Hà Nội do tập đoàn CEO Group làm chủ đầu tư. Dự án được quy hoạch đồng bộ, hạ tầng hiện đại mở ra một không gian sống mới hoàn toàn khác biệt. Với thiết kế hiện đại và đẳng cấp, cư dân sẽ được tận hưởng cuộc sống đầy đủ, tiện nghi chưa từng có.</p>
+<p>Dự án CEOHomes Hana Garden Mê Linh nằm cách thủ đô Hà Nội hơn 20km về phía Bắc, gần với dự án Mê Linh Vista City đây là dự án được quy hoạch theo tiêu chuẩn đô thị đồng bộ hiện đại, văn minh đầy đủ tiện ích công cộng đáp ứng nhu cầu và điều kiện của nhiều đối tượng, là điểm nhấn của một khu đô thị sầm uất và hiện đại bậc nhất tại Mê Linh.</p>
+<h2>Tổng quan dự án CEOHomes Hana Garden Mê Linh</h2>
 <p>Mỗi thành phố du lịch nổi tiếng đều gắn liền với một dòng sông hay một bãi biển tuyệt đẹp cùng với các dịch vụ tiện ích nhằm thỏa mãn nhu cầu nghỉ ngơi, giải trí và kiến tạo những không gian mở cho cư dân cũng như khách du lịch.</p>
-<p>Với <strong><a href="https://vanphugroup.com/dat-nen-sam-son/">Dự án Đất Nền Sầm Sơn</a></strong>, bãi biển Nam Sầm Sơn bốn mùa trong xanh là một ưu đãi lớn về thiên nhiên, không chỉ tạo cảnh quan đẹp mà còn tạo bầu không khí trong lành, lộng gió. Hương vị biển sẽ tràn ngập từ trong những giây phút thưởng ngoạn phong cảnh cho đến từng giấc ngủ còn vương tiếng sóng ru êm đềm của bạn. Nơi đây, trên diện tích 30 ha, chúng tôi kiến tạo cuộc sống mới, nhân rộng màu xanh thiên nhiên, quảng bá văn hóa – du lịch.</p>
-<p>Nơi đây, chúng tôi hiện thực ý tưởng về một khu biệt thự thông minh, lãng mạn bên bờ biển, với sự kết hợp hài hòa giữa các khu nhà biệt thự, thấp tầng, cao tầng, công viên cây xanh và đặc biệt là quảng trường trung tâm dự án với kiến trúc độc đáo – một phần trên đất liền và một phần lấn ra mặt biển.</p>
-<p> <strong><a href="https://vanphugroup.com/dat-nen-sam-son/">Dự án Đất Nền Sầm Sơn</a></strong> nằm tại vị trí trung tâm của khu du lịch nghỉ mát Nam Sầm Sơn, tỉnh Thanh Hoá, trong đó quảng trường trung tâm thuộc dự án là điểm nhấn cuối cùng của trục đường trung tâm đi qua huyện Quảng Xương, hướng ra biển. Khu Biệt thự dự án Đất Nền Sầm Sơn tiếp giáp và trải dài dọc theo đường du lịch 4D và dải bãi tắm ven biển tuyệt đẹp của khu du lịch nghỉ mát Nam Sầm Sơn thuộc địa giới các xã Quảng Hùng, Quảng Đại, Quảng Xương tỉnh Thanh Hoá. </p>
-<h2>Tận hưởng cuộc sống thượng lưu</h2>
-<p>Xen lẫn giữa những khối công trình trên là những khu bán đồ lưu niệm, bể cảnh, tượng đài, đường dạo, cầu bê tông giả gỗ, bãi đá cuội trang trí, cổng hoa, vườn hoa, mặt nước…tạo nên một bức tranh tổng thể nhiều màu sắc, được phối màu tinh tế đến từng chi tiết nhỏ.</p>
-<p>Ngoài những tiện ích từ vị trí trung tâm hành chính, văn hóa du lịch, <strong><a href="https://vanphugroup.com/dat-nen-sam-son/">dự án Đất Nền Sầm Sơn</a></strong> còn có những tiện ích đặc biệt từ sự sáng tạo của các chuyên gia kiến trúc. Trải dọc ven biển là hai tuyến kè duyên dáng, vừa trang trí, vừa để bảo vệ, che chắn. Giữa 2 lớp kè biển là dải cây thông xanh và thảm cỏ kết hợp với các tuyến đi bộ, đường dạo biển cắt ngang để du khách có thể tiếp cận trực tiếp với bãi biển.</p>
-<p>Quảng trường trung tâm có ranh giới nằm hoàn toàn trong dự án sẽ tạo cho du khách ấn tượng và cảm xúc đặc biệt. Nơi đây sẽ là một địa điểm giao thông liên khu vực phục vụ cho các hoạt động công cộng, sinh hoạt văn hoá, lễ hội, nơi hội tụ của các tuyến giao thông cơ giới và đường đi bộ. Quảng trường đồng thời cũng là nơi tập trung các công trình vui chơi, giải trí trong nhà và ngoài trời kết hợp với cây xanh, vườn hoa, đài phun nước, sân ngắm biển, câu thuyền và bãi đá trang trí… để mang đến cho du khách những phút giây thư giãn tràn ngập hương vị biển.</p>
-<p>Hệ thống giao thông được bố trí khoa học với đường 4D dọc ven biển, đường 4C phía Tây, hệ thống đường phân khu và đường nội bộ. Các phương tiện giao thông công cộng, bãi đỗ xe, điểm đỗ xe, bến xe…đều được quy hoạch xây dựng hoàn chỉnh và đồng bộ. Các tuyến đường đi qua dự án đều có thể trở thành các tuyến đi dạo, mua sắm ven biển và hướng vào khu trung tâm thương mại cao tầng của dự án.</p>
-<p><strong>Mọi thông tin chi tiết về dự án Đất Nền Sầm Sơn:</strong></p>
-<ul><li><strong>Hotline: 0948.300.301 (Phòng Kinh doanh CĐT)</strong></li><li><strong>Website:&nbsp;<a href="https://vanphugroup.com/dat-nen-sam-son/">vanphugroup.com/dat-nen-sam-son/</a></strong></li><li><strong>Địa chỉ: 104 Thái Thịnh, Đống Đa, Hà Nội.</strong></li></ul>
+<p>Được đầu tư phát triển bởi tập đoàn CEO Group – Top 10 chủ đầu tư bất động sản hàng đầu Việt Nam, Hana Garden City Mê Linh kiến tạo một không gian sống hoàn toàn mới, mỗi ngày đều là một trải nghiệm mới lạ, nơi cuộc sống thăng hoa và tràn đầy năng lượng.</p>
+<ul>
+  <li>Tên dự án: Khu đô thị Hana Garden City Mê Linh</li>
+  <li>Chủ đầu tư: CEO Group</li>
+  <li>Vị trí: Đại Thịnh – Mê Linh – Hà Nội</li>
+  <li>Tổng mức đầu tư: 1400 tỷ đồng</li>
+  <li>Đất công trình công cộng: Diện tích 15.681 m2 chiếm (4,35%).</li>
+  <li>Đất cây xanh, công viên, thể thao: Diện tích 104.451 m2 chiếm (11,82%).</li>
+  <li>Đất giao thông: Diện tích 127.583 m2 chiếm (35,40%).</li>
+  <li>Tổng diện tích cây xanh và sân đường: 7.969 m2</li>
+  <li>Biệt thự: 40 căn</li>
+  <li>Liền kề: 528 căn</li>
+  <li>Nhà ở xã hội: Đang cập nhật</li>
+  <li>Cơ cấu diện tích liền kề: từ 81 m2 đến 300 m2</li>
+  <li>Tiện ích nội khu dự án: TT thương mại, trường quốc tế, TT chăm sóc sức khỏe người già, bể bơi ngoài trời, công viên thể thao ngoài trời, công viên cây xanh, đường dạo bộ, nhà hàng ẩm thực, …</li>
+  <li>Hình thức sở hữu: Sổ hồng lâu dài</li>
+<p><strong>Mọi thông tin chi tiết về dự án CEOHomes Hana Garden:</strong></p>
+<ul><li><strong>Hotline: 0948.300.301 (Phòng Kinh doanh CĐT)</strong></li><li><strong>Website:&nbsp;<a href="https://www.tranngocthuan.com/du-an/ceohomes-hana-garden">https://www.tranngocthuan.com/du-an/ceohomes-hana-garden</a></strong></li><li><strong>Địa chỉ: Xã Đại Thịnh, Mê Linh, Hà Nội.</strong></li></ul>
