@@ -4,12 +4,12 @@ CEOHomes Hana Garden
 <p>Mang vẻ đẹp lãng mạn của những khu vườn xanh tươi đẳng cấp, Hana Garden City Mê Linh mở ra khung cảnh của thành phố hiện đại giữa không gian an yên của cỏ cây & hoa lá, tươi mới tràn năng lượng.</p>
 <p>Hướng đến phát triển một khu đô thị xanh – thông minh, các sản phẩm Liền kề & Biệt thự tại khu đô thị CEO Mê Linh – Hana Garden City ứng dụng hệ thống công nghệ hiện đại trong từng không gian, tiên phong kiến tạo môi trường sống năng động & nhân văn cho cư dân tương lai.</p>
 <p><a href="https://www.tranngocthuan.com/du-an/ceohomes-hana-garden"><strong>CEOHomes Hanna Mê Linh</strong></a><strong> </strong> là khu đô thị đẳng cấp và sang trọng được đầu tư xây dựng tại khu vực giáp ranh 3 xã Đại Thịnh – Mê Linh – Văn Khê, huyện Mê Linh, Tp Hà Nội do tập đoàn CEO Group làm chủ đầu tư. Dự án được quy hoạch đồng bộ, hạ tầng hiện đại mở ra một không gian sống mới hoàn toàn khác biệt. Với thiết kế hiện đại và đẳng cấp, cư dân sẽ được tận hưởng cuộc sống đầy đủ, tiện nghi chưa từng có.</p>
-<p>Dự án CEOHomes Hana Garden Mê Linh nằm cách thủ đô Hà Nội hơn 20km về phía Bắc, gần với dự án Mê Linh Vista City đây là dự án được quy hoạch theo tiêu chuẩn đô thị đồng bộ hiện đại, văn minh đầy đủ tiện ích công cộng đáp ứng nhu cầu và điều kiện của nhiều đối tượng, là điểm nhấn của một khu đô thị sầm uất và hiện đại bậc nhất tại Mê Linh.</p>
+<p><a href="https://www.tranngocthuan.com/du-an/ceohomes-hana-garden"><strong>Dự án CEOHomes Hana Garden Mê Linh</strong></a><strong> </strong> nằm cách thủ đô Hà Nội hơn 20km về phía Bắc, gần với dự án Mê Linh Vista City đây là dự án được quy hoạch theo tiêu chuẩn đô thị đồng bộ hiện đại, văn minh đầy đủ tiện ích công cộng đáp ứng nhu cầu và điều kiện của nhiều đối tượng, là điểm nhấn của một khu đô thị sầm uất và hiện đại bậc nhất tại Mê Linh.</p>
 <h2>Tổng quan dự án CEOHomes Hana Garden Mê Linh</h2>
 <p>Mỗi thành phố du lịch nổi tiếng đều gắn liền với một dòng sông hay một bãi biển tuyệt đẹp cùng với các dịch vụ tiện ích nhằm thỏa mãn nhu cầu nghỉ ngơi, giải trí và kiến tạo những không gian mở cho cư dân cũng như khách du lịch.</p>
 <p>Được đầu tư phát triển bởi tập đoàn CEO Group – Top 10 chủ đầu tư bất động sản hàng đầu Việt Nam, Hana Garden City Mê Linh kiến tạo một không gian sống hoàn toàn mới, mỗi ngày đều là một trải nghiệm mới lạ, nơi cuộc sống thăng hoa và tràn đầy năng lượng.</p>
 <ul>
-  <li>Tên dự án: Khu đô thị Hana Garden City Mê Linh</li>
+  <li>Tên dự án: Khu đô thị CEOHomes Hana Garden City Mê Linh</li>
   <li>Chủ đầu tư: CEO Group</li>
   <li>Vị trí: Đại Thịnh – Mê Linh – Hà Nội</li>
   <li>Tổng mức đầu tư: 1400 tỷ đồng</li>
